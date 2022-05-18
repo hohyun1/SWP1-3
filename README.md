@@ -1,2 +1,2 @@
-20223070 namhohyun
+namhohyun 20223070
 Kookmin Univ, SW
